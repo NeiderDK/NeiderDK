@@ -1,7 +1,7 @@
 Hi 👋 My name is Jonathan Neider Larsen
 =======================================
 
-Software Developer - Junior RPA Specialist
+Software engineer
 ------------------------------------------
 
 *   🌍  I'm based in Denmark
