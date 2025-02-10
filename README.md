@@ -5,7 +5,7 @@ Software engineer
 -----------------
 
 * 🌍  I'm based in Denmark
-* ✉️  You can contact me at [jonathanneider0@gmail.com](mailto:jonathanneider0@gmail.com)
+* ✉️  You can contact me at [jonathanneider@pm.me](mailto:jonathanneider@pm.me)
 
 ### Skills
 
